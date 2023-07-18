@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 9: Conclusion
-=====================
-
 Mindful journaling is a powerful tool for anxiety relief and emotional healing. By combining the practices of mindfulness and journaling, individuals can become more aware of their inner world and gain insight into their patterns of thinking and behavior. This book has explored the benefits and techniques of mindful journaling for anxiety relief, and provided practical exercises to help you start or enhance your mindful journaling practice.
 
 Recap of Key Points
