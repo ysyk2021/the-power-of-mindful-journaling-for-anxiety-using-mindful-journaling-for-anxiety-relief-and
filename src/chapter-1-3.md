@@ -1,4 +1,4 @@
-Chapter: How This Book Can Help You
+How This Book Can Help You
 ===================================
 
 Introduction

@@ -1,4 +1,4 @@
-Chapter: Feeling Stuck or Unmotivated
+Feeling Stuck or Unmotivated
 =====================================
 
 Introduction

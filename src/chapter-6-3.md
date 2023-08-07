@@ -1,4 +1,4 @@
-Chapter 3: Finding Time to Journal
+Finding Time to Journal
 ==================================
 
 In this chapter, we will explore strategies and techniques to help you find time in your busy schedule for mindful journaling. Making journaling a regular practice can be a powerful tool for anxiety relief and emotional healing. By dedicating time to reflect and express yourself, you can cultivate a sense of calm and clarity in your daily life.

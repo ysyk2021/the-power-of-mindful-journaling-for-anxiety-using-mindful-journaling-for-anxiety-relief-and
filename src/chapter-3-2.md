@@ -1,4 +1,4 @@
-Chapter: How Mindful Journaling Helps with Anxiety
+How Mindful Journaling Helps with Anxiety
 ==================================================
 
 Introduction

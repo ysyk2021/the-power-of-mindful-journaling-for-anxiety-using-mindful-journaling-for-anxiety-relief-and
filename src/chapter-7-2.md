@@ -1,4 +1,4 @@
-Chapter 4: Self-Compassion Journaling
+Self-Compassion Journaling
 =====================================
 
 In this chapter, we will explore the practice of self-compassion journaling as a powerful tool for anxiety relief and emotional healing. Through the act of writing, we can develop a deeper sense of self-awareness, cultivate self-compassion, and foster a more compassionate relationship with ourselves.

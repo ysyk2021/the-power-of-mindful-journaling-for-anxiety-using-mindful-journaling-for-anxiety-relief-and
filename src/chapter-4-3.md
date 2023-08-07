@@ -1,4 +1,4 @@
-Chapter 4: Creating a Routine
+Creating a Routine
 =============================
 
 In this chapter, we will explore the importance of creating a routine and how mindful journaling can help you establish and maintain a balanced daily schedule that promotes anxiety relief and emotional healing. A routine can provide structure, stability, and a sense of control in your life, all of which are essential for managing anxiety effectively.

@@ -1,4 +1,4 @@
-Chapter 5: Prompt-Based Journaling
+Prompt-Based Journaling
 ==================================
 
 In this chapter, we will explore the power of prompt-based journaling as a valuable tool for anxiety relief and emotional healing. By using carefully crafted prompts, you can delve deep into your thoughts and feelings, gaining clarity and insight to overcome anxiety and promote emotional well-being.

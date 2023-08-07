@@ -33,3 +33,4 @@
   - [Making Journaling a Habit](chapter-8-2.md)
   - [Tracking Progress](chapter-8-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)

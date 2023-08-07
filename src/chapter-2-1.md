@@ -1,4 +1,4 @@
-Chapter 1: What is Anxiety?
+What is Anxiety?
 ===========================
 
 Anxiety is a common emotional and psychological experience that affects millions of individuals worldwide. It manifests itself as a feeling of unease, worry, fear, or apprehension about future events or uncertain circumstances. In this chapter, we will explore the nature of anxiety and its impact on our mental well-being.

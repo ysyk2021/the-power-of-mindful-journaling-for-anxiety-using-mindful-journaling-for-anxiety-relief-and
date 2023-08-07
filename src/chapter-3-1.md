@@ -1,4 +1,4 @@
-Chapter 3: The Science Behind Mindful Journaling
+The Science Behind Mindful Journaling
 ================================================
 
 In this chapter, we will explore the scientific basis behind the effectiveness of mindful journaling for anxiety relief and emotional healing. By understanding the underlying mechanisms, we can appreciate how this practice can positively impact our well-being.

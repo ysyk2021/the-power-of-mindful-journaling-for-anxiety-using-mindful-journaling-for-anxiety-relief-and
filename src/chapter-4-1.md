@@ -1,4 +1,4 @@
-Chapter 1: Setting Up Your Journal
+Setting Up Your Journal
 ==================================
 
 In this chapter, we will explore the essential steps to set up your mindful journal for anxiety relief and emotional healing. Creating a purposeful and personalized environment for your journaling practice can greatly enhance its effectiveness in managing anxiety and promoting emotional well-being.

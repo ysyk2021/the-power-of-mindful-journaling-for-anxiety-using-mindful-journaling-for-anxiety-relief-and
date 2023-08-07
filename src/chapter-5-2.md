@@ -1,4 +1,4 @@
-Chapter: Stream of Consciousness Writing
+Stream of Consciousness Writing
 ========================================
 
 Introduction

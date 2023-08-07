@@ -1,4 +1,4 @@
-Chapter: Maintaining Consistency
+Maintaining Consistency
 ================================
 
 In this chapter, we will explore the importance of maintaining consistency in your mindful journaling practice for anxiety relief and emotional healing. Consistency is key when it comes to reaping the full benefits of mindful journaling. By incorporating regular journaling sessions into your daily routine, you can create a powerful tool for managing anxiety and fostering emotional well-being.

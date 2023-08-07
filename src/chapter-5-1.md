@@ -1,4 +1,4 @@
-Chapter: Gratitude Journaling
+Gratitude Journaling
 =============================
 
 In this chapter, we will explore the powerful practice of gratitude journaling as a tool for anxiety relief and emotional healing. Gratitude journaling is a mindful exercise that involves writing down things we are grateful for on a regular basis. Cultivating gratitude helps shift our focus from negative thoughts and worries to positive aspects of our lives, leading to a greater sense of calm and contentment.

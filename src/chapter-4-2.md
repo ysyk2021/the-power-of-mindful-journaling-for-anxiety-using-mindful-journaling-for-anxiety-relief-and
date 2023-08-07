@@ -1,4 +1,4 @@
-Chapter 3: Choosing the Right Time and Place
+Choosing the Right Time and Place
 ============================================
 
 In this chapter, we will explore the importance of choosing the right time and place for practicing mindful journaling. Creating a suitable environment can significantly enhance the effectiveness of your anxiety relief and emotional healing journey.

@@ -1,4 +1,4 @@
-Chapter 1: What is Mindful Journaling?
+What is Mindful Journaling?
 ======================================
 
 In this chapter, we will explore the concept of mindful journaling and how it can be a powerful tool for anxiety relief and emotional healing. Mindful journaling combines the practice of mindfulness with the act of writing in a journal to promote self-awareness, reflection, and personal growth. By engaging in this practice, individuals can develop a deeper understanding of their emotions, thoughts, and experiences, ultimately leading to increased well-being and resilience.
