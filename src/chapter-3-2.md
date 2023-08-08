@@ -1,8 +1,7 @@
 How Mindful Journaling Helps with Anxiety
 ==================================================
 
-Introduction
-------------
+
 
 Anxiety can be overwhelming, causing a constant state of worry and distress. It affects millions of people worldwide, impacting their daily lives and overall well-being. Fortunately, there are various techniques that can help manage anxiety, one of which is mindful journaling. In this chapter, we will explore how mindful journaling can effectively alleviate anxiety and promote emotional healing.
 

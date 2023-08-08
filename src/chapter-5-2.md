@@ -1,8 +1,7 @@
 Stream of Consciousness Writing
 ========================================
 
-Introduction
-------------
+
 
 In this chapter, we will explore the practice of stream of consciousness writing as a powerful tool for anxiety relief and emotional healing. Stream of consciousness writing involves expressing thoughts and feelings without judgment or censorship. It allows us to tap into our subconscious mind, uncovering hidden emotions and gaining clarity in the process.
 
