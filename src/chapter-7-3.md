@@ -32,4 +32,3 @@ To begin your Inner Child Journaling practice, follow these steps:
 6. **Express Gratitude**: Conclude your journaling session by expressing gratitude to your inner child for their presence and resilience. Offer words of encouragement and commit to nurturing this relationship in your daily life.
 
 Remember, Inner Child Journaling is a deeply personal and introspective practice. Honor your own pace and boundaries throughout the process. Gradually, you will notice the transformative power of reconnecting with your inner child and the positive impact it has on alleviating anxiety and promoting emotional healing.
-> Note: It is essential to consult a mental health professional if you encounter difficulties or require additional support while engaging in this practice.
