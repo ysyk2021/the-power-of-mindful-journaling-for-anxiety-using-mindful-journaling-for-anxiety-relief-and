@@ -35,5 +35,5 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 17. Wellness
 18. Self-compassion
 19. Mindful practices
-20. Overcoming fear and anxiety.
+20. Overcoming fear and anxiety
 
