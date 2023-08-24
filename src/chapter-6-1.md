@@ -1,7 +1,3 @@
-Feeling Stuck or Unmotivated
-=====================================
-
-
 
 Feeling stuck or unmotivated is a common experience that many individuals face when dealing with anxiety. It can be frustrating and draining, hindering personal growth and emotional healing. However, by incorporating mindful journaling into your daily routine, you can effectively address these feelings and cultivate a sense of purpose and motivation in your life.
 

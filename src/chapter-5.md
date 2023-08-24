@@ -1,5 +1,3 @@
-Chapter 5: Mindful Journaling Techniques for Anxiety Relief
-===========================================================
 
 In this chapter, we will explore different mindful journaling techniques that can be used to relieve anxiety and promote emotional healing. These techniques include gratitude journaling, stream of consciousness writing, prompt-based journaling, and visualization journaling.
 

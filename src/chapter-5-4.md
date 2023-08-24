@@ -1,5 +1,3 @@
-Visualization Journaling
-===================================
 
 Visualization journaling is a powerful technique that combines the benefits of mindfulness and imagination to help alleviate anxiety, promote emotional healing, and enhance overall well-being. In this chapter, we will explore how you can use visualization journaling as a tool to cultivate a sense of calm, clarity, and positivity.
 

@@ -1,5 +1,3 @@
-Types of Anxiety Disorders
-===================================
 
 Anxiety disorders are a common mental health condition, affecting millions of people worldwide. They can manifest in various forms, each characterized by distinct symptoms and triggers. Understanding the different types of anxiety disorders is crucial for effectively managing and seeking appropriate support. In this chapter, we will explore some of the most prevalent anxiety disorders:
 

@@ -1,5 +1,3 @@
-Chapter 3: Benefits of Mindful Journaling for Anxiety
-=====================================================
 
 Anxiety is a common mental health issue that can have a significant impact on a person's quality of life. While there are many treatments available for anxiety, mindful journaling has emerged as a powerful tool for managing symptoms and promoting emotional healing. In this chapter, we'll explore the science behind mindful journaling and how it can help with anxiety.
 

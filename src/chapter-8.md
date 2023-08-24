@@ -1,5 +1,3 @@
-Chapter 8: Integrating Mindful Journaling into Your Daily Life
-==============================================================
 
 Mindful journaling is a valuable tool for anxiety relief and emotional healing, but it can be challenging to integrate into your daily routine. In this chapter, we will explore some practical tips for maintaining consistency, making journaling a habit, and tracking progress.
 

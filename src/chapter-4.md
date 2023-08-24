@@ -1,5 +1,3 @@
-Chapter 4: Getting Started with Mindful Journaling
-==================================================
 
 Mindful journaling is a powerful tool for managing anxiety and promoting emotional healing. If you're new to journaling, getting started can be overwhelming. In this chapter, we'll explore some tips for setting up your journal, choosing the right time and place to write, and creating a routine that works for you.
 

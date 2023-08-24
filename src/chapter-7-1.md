@@ -1,5 +1,3 @@
-Forgiveness Journaling
-=================================
 
 In this chapter, we will explore the concept of forgiveness journaling and how it can be a powerful tool for anxiety relief and emotional healing. Forgiveness is a deeply personal and transformative process that allows us to let go of past hurts, resentment, and anger. By incorporating forgiveness journaling into our lives, we can cultivate compassion, heal old wounds, and create space for growth and self-discovery.
 

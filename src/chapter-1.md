@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Anxiety is a common mental health issue that can have a significant impact on a person's quality of life. While there are many treatments available for anxiety, mindful journaling has emerged as a powerful tool for managing symptoms and promoting emotional healing. In this book, we'll explore the benefits of mindful journaling for anxiety and provide practical tips and techniques for incorporating mindful journaling into your daily routine.
 

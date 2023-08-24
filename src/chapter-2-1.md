@@ -1,4 +1,3 @@
-# What is Anxiety?
 
 In this chapter, we will explore the concept of anxiety and its impact on our emotional well-being. Understanding anxiety is the first step towards effectively managing and finding relief from its symptoms. By delving into the nature of anxiety, we can gain insights into its causes, symptoms, and the importance of addressing it with mindful journaling for anxiety relief and emotional healing.
 

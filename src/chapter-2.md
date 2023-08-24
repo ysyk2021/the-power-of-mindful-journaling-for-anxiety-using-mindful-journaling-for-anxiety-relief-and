@@ -1,5 +1,3 @@
-Chapter 2: Understanding Anxiety
-================================
 
 Anxiety is a common mental health issue that affects millions of people around the world. While anxiety can be a normal response to stress, chronic or severe anxiety can have a significant impact on a person's quality of life. In this chapter, we'll explore what anxiety is, the different types of anxiety disorders, and some of the causes of anxiety.
 

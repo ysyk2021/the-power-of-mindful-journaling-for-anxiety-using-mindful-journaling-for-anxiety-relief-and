@@ -1,5 +1,3 @@
-Dealing with Negative Thoughts and Emotions
-====================================================
 
 Negative thoughts and emotions can be overwhelming, causing anxiety and hindering our emotional well-being. In this chapter, we will explore the power of mindful journaling as a tool to help us process and release these negative thoughts and emotions. Through this practice, we can cultivate a greater sense of self-awareness, promote emotional healing, and find relief from anxiety.
 

@@ -1,5 +1,3 @@
-Tracking Progress
-============================
 
 In this chapter, we will explore the importance of tracking progress in your mindful journaling practice for anxiety relief and emotional healing. By regularly assessing your journey, you can gain valuable insights, identify patterns, and celebrate your achievements. Tracking progress allows you to stay motivated, adapt your strategies, and cultivate a deeper understanding of yourself. Let's dive into some effective techniques for monitoring and measuring your progress.
 

@@ -1,5 +1,3 @@
-Chapter 6: Overcoming Common Challenges in Mindful Journaling
-=============================================================
 
 Mindful journaling can be a transformative practice, but it's not always easy. In this chapter, we'll explore some common challenges that may arise in your journaling practice and offer strategies for overcoming them.
 

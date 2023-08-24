@@ -1,5 +1,3 @@
-Making Journaling a Habit
-==================================
 
 In this chapter, we will explore the importance of making journaling a habit in order to effectively manage anxiety, find relief, and promote emotional healing through mindful journaling techniques. By developing a consistent journaling practice, you can harness the power of written reflection to cultivate self-awareness, alleviate stress, and foster personal growth.
 

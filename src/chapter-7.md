@@ -1,5 +1,3 @@
-Chapter 7: Advanced Mindful Journaling Techniques for Emotional Healing
-=======================================================================
 
 While mindful journaling can be a powerful tool for managing anxiety and promoting emotional healing on its own, there are also advanced techniques that you can use to take your practice to the next level. In this chapter, we'll explore three advanced mindful journaling techniques: forgiveness journaling, self-compassion journaling, and inner child journaling.
 

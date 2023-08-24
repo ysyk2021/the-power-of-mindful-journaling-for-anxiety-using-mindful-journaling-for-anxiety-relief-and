@@ -1,5 +1,3 @@
-Causes of Anxiety
-============================
 
 Anxiety is a complex condition that can be influenced by various factors. Understanding the underlying causes of anxiety is crucial in developing effective strategies for managing and alleviating its symptoms. In this chapter, we will explore some common causes of anxiety and how they can impact our mental well-being.
 

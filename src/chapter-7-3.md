@@ -1,5 +1,3 @@
-Inner Child Journaling
-=================================
 
 In this chapter, we will explore the powerful technique of Inner Child Journaling as a means to alleviate anxiety, foster emotional healing, and reconnect with our authentic selves. Inner Child Journaling is a mindful practice that allows us to tap into the deep reservoirs of our inner child's wisdom, memories, and emotions. Through this process, we can gain insight into past experiences and heal any unresolved wounds that may contribute to our present anxiety.
 

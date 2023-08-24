@@ -1,5 +1,3 @@
-Why Use Mindful Journaling for Anxiety?
-==================================================
 
 Anxiety has become a common experience for many individuals in today's fast-paced and demanding world. The constant pressure, uncertainties, and overwhelming responsibilities often contribute to a sense of unease and tension. While there are various approaches to managing anxiety, one powerful tool that can be incredibly beneficial is mindful journaling.
 
