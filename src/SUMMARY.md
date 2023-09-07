@@ -3,7 +3,6 @@
 - [Chapter 1: Introduction](README.md)
   - [What is Mindful Journaling?](chapter-1-1.md)
   - [Why Use Mindful Journaling for Anxiety?](chapter-1-2.md)
-  - [How This Book Can Help You](chapter-1-3.md)
 - [Chapter 2: Understanding Anxiety](chapter-2.md)
   - [What is Anxiety?](chapter-2-1.md)
   - [Types of Anxiety Disorders](chapter-2-2.md)
@@ -34,3 +33,4 @@
   - [Tracking Progress](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

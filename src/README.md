@@ -10,3 +10,7 @@ Through mindful journaling, you can learn to observe your thoughts and emotions 
 This book will provide you with practical techniques and exercises for incorporating mindful journaling into your daily routine, as well as tips for building a sustainable mindfulness practice. Whether you are new to mindfulness or an experienced practitioner, this book will guide you on your journey towards anxiety relief and emotional healing through the power of mindful journaling.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
