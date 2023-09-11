@@ -1,5 +1,4 @@
-Chapter: Causes of Anxiety
-==========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the causes of anxiety and how mindful journaling can be used as a tool for anxiety relief and emotional healing. By gaining an understanding of the underlying causes of anxiety, individuals can cultivate self-awareness and employ mindful journaling techniques to address and alleviate their anxieties effectively.
 
